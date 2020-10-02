@@ -99,12 +99,12 @@ The CAN-SPAM Act is a law that sets the rules for commercial email, establishes 
 ### To be in accordance with CANSPAM, we agree to the following:
       • Not use false or misleading subjects or email addresses.
 
-If at any time you would like to unsubscribe from receiving future emails, you can email us at ian121362@gmail.com and we will promptly remove you from ALL correspondence.
+If at any time you would like to unsubscribe from receiving future emails, you can email us at contact@dazadgame.com and we will promptly remove you from ALL correspondence.
 
 
 ### Contacting Us
 
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
-Email: ian121362@gmail.com   
+Email: contact@dazadgame.com   
 Cell: +886922553672
